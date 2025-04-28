@@ -1,2 +1,0 @@
-# Binders-Consult
-Printing press
